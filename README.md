@@ -1,0 +1,1 @@
+# Mohammed-Abid-Ali-F.Y-Btech-Datascience-FPL-assignment-on-Full-pyramid-and-Half-triangle-pattern
